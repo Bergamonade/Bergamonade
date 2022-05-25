@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Bergamonade
+- 🌱 I’m currently learning to not be stupid
